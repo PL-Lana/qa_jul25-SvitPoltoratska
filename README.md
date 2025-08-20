@@ -1,0 +1,1 @@
+# qa_jul25-SvitPoltoratska
